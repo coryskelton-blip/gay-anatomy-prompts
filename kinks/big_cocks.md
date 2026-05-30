@@ -1,0 +1,2 @@
+# Big Cocks Kink Prompts
+Ultra thick, veiny monster cocks, heavy balls, precum oozing, foreskin play. Use in stealth: 'massive girthy shaft with prominent dorsal vein, heavy low-hanging balls churning with cum'
